@@ -1,0 +1,2 @@
+#Red Velvet Cake:
+Red Velvet Cake is traditionally a red,red-brown,crimson or scarlet-colored chocolate layer cake, layered with ermine icing. It is a queen of layers. Its very smooth and creamy. This cake is moist but so light and fluppy that is the correct match of all delicious frosting. Along with this there are many reasons why Red Velvet Cake is so famous and loved by almost all. 
